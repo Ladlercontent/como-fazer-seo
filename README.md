@@ -8,6 +8,8 @@ Neste guia, vamos explorar estratégias eficazes para dominar o SEO para ecommer
 
 **Conheça meu serviço de SEO para ecommerce**
 
+>>>> Fale comigo Thays Ladler para saber sobre a consultoria de SEO para ecommerce <<<
+
 ### Case de Sucesso: SEO para Ecommerce 2024
 
 Veja o case de um cliente de ecommerce que agora fatura mais de 40 mil por mês com SEO para ecommerce, de forma totalmente orgânica:
